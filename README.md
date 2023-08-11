@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **yash20021107@gmail.com**
 
-- ⚡ Fun fact **Loves listening music, watching anime and origami**
+- ⚡ **Loves listening music, watching anime and origami**
 
 <h3> 👨🏻‍💻 About Me </h3>
 
